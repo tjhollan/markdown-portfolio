@@ -1,0 +1,4 @@
+- __Knowledgable__ :raven:
+- _Loyal_ 🦡
+- Clever 🐍
+- __B__*rave* 🦁
